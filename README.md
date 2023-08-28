@@ -4,4 +4,4 @@
 
 Game download: https://www.microsoft.com/store/productid/9NBLGGH2JHXJ?ocid=pdpshare
 
-Unlock game launcher: https://drive.google.com/file/d/130u7NgZNBbIk0VUa1FHaYZvoCUTax-wY/view?usp=sharing
+Unlock game launcher: https://drive.google.com/file/d/1NzXSX64oyJ7WWiMUrVC0v4HNPN_SM-ba/view?usp=sharing
